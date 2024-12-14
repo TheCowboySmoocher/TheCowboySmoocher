@@ -5,7 +5,7 @@ Hi I like stuff
 
   My names are Colt / Marty / Tyler / Joi !! Either work, but I more commonly go by Colt :p
   
-My prns are Xey/Xem - He/Him - Ze/Zir !! somedays they're She/Her, though I'd like if you asked before using them
+My prns are Xey/Xem - He/Him - Ze/Zir !! somedays I like She/Her, though I'd like if you asked before using them
 
   My main interests right now are JJBA, Ryan Gosling (the movies he's in..haha..), Bugsnax, and TDI >_< 
   
