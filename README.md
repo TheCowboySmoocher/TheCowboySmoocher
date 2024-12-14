@@ -13,9 +13,7 @@ PLEEAASE INT KIRABOSS SHIPPERS PLEASEPLEASEPLEASE
 
   I'm very normal about the ships I like.
   
-If you're really curious about me tho, check out my links :p
-
-  maybe even add me on Disc oo 
+If you're really curious about me tho, check out my links :p ( maybe even add me on Disc oo )
 
   ![Downloads_kiraaakiraaahhrahhrah](https://github.com/user-attachments/assets/7d7e0816-cee6-4c85-96e3-2429e46bc8dc) 
 
