@@ -7,7 +7,7 @@ Hi I like stuff
   
 My prns are Xey/Xem - He/Him - Ze/Zir !! somedays I like She/Her, though I'd like if you asked before using them
 
-  My main interests right now are JJBA, Ryan Gosling (the movies he's in..haha..), Bugsnax, and TDI >_< 
+  My main interests right now are JJBA, House md, TDI, CRK, and Specter!! >_< 
   
 PLEEAASE INT KIRABOSS SHIPPERS PLEASEPLEASEPLEASE
 
