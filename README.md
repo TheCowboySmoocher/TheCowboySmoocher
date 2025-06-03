@@ -7,11 +7,9 @@ Hi I like stuff
   
 My prns are Xey/Xem - He/Him - Ze/Zir !! somedays I like She/Her, though I'd like if you asked before using them
 
-  My main interests right now are JJBA, House md, TDI, CRK, and Specter!! >_< 
+  My main interests right now are JJBA, House md, Overwatch, TWD, and Specter!! 
   
 PLEEAASE INT KIRABOSS SHIPPERS PLEASEPLEASEPLEASE
-
-  I'm very normal about the ships I like.
   
 If you're really curious about me tho, check out my links :p ( maybe even add me on Disc oo )
 
