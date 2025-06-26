@@ -7,7 +7,7 @@ Hi I like stuff
   
 My prns are Xey/Xem - He/Him - Ze/Zir !! somedays I like She/Her, though I'd like if you asked before using them
 
-  My main interests right now are JJBA, House md, Overwatch, TWD, and Specter!! 
+  My main interests right now are Metalocalypse, Postal Dude, JJBA, TWD, and Fallout4 !
   
 PLEEAASE INT KIRABOSS SHIPPERS PLEASEPLEASEPLEASE
   
